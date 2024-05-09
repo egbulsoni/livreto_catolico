@@ -88,4 +88,35 @@ Ruega a Dios por nosotros, aleluya.
 v. Gozate y alegrate, Virgen Maria, aleluya.
 r. Porque verdaderamente ha resucitado el Senor, aleluya.
 
--- pag 17 Oracion
+# ORACION.
+Oh Dios, que por la resurreccion de vuestro Hijo, nuestro Senor Jesucristo, os dignaste comunicar la alegria a todo el mundo: os suplicamos nos concedais el que por la intercesion de su madre, la Virgen Maria, participemos de los gozos de la vida eterna. Por el mismo Jesucristo nuestro Senor. Asi sea.
+
+# AL ANGEL CUSTODIO.
+
+Angel de Dios, bajo cuya custodia me puso el Senor con amorosa piedad, a mi que soy vuestro encomendado alumbradme hoy, guardadme, regidme y gobernadme. Amen.
+
+# ORACION
+
+AL SANTO DE CADA UNO.
+
+A vos san N., que me honro con llevar vuestro nombre, os ruego que os digneis protejerme e infundirme un vivisimo deseo de adquirir vuestras virtudes, para que sirviendo como vos en la tierra a mi Criador, goce tambien despues como Vos de las inefables dulzuras del paraiso.
+
+R. Amen.
+
+# ORACION A TODOS LOS SANTOS
+
+Siervos de Dios, que por haber resistido las tentaciones del maligno espiritu y observado exactamente la ley santa, gozais de las eternas delicias de la gloria, dignaos interceder con nuestro misericordiosisimo Salvador para que no me llame improvisadamente a su tremendo tribunal sin haber yo recibido antes con ferviente contricion los saludables Sacramentos.
+
+R. Amen
+
+-----
+
+# BENDICION DE LA MESA PARA SEGLARES
+
+Haciendo la sena, de la cruz sobre la comida, se dice:
+
+Bendecidnos, Senor, y a estos dones que vamos a recibir de vuestra mano. Por nuestro Senor Jesucristo.
+
+R. Amen
+
+-- pag 19
