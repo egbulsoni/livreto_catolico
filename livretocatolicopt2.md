@@ -2,7 +2,7 @@
 pinned: true
 title: livretocatolicopt2
 created: '2026-04-30T16:43:52.422Z'
-modified: '2026-05-01T22:02:54.408Z'
+modified: '2026-05-02T17:40:26.920Z'
 ---
 
 # livreto_catolico_pt2
@@ -311,3 +311,106 @@ V. El Senor sea con vosotros.
 R. Y con tu espiritu.
 V. Elevas vuestros corazones.
 R. Los tenemos ya hacia el Senor.
+V. Demos gracias a Dios nuestro Senor.
+R. Es digno y justo
+
+# PREFACIO COMUN.
+
+Verdaderamente es digno y justo, equitativo y saludable el darte gracias en todo tiempo y en todo lugar, !oh Senor, Padre santo, Dios todopoderoso y eterno! Por Jesucristo nuestro Senor; por quien alaban tu Majestad los Angeles, la adoran las dominaciones y tiemblan ante ella las potestades; los cielos y las virtudes de los cielos y los bienaventurados Serafines la celebran con mutuos transportes de alegria. Y te rogamos que te dignes admitir nuestras voces, que unimos a las suyas, diciendote con humilde confesion: Santo, santo, santo, Senor Dios de los ejercitos: llenos estan los cielos y la tierra de tu gloria. _Hosanna en las alturas._
+
+# PREFACIO
+
+DEL SANTISIMO SACRAMENTO.
+
+Verdaderamente es digno y justo, equitativo y saludable, darte gracias en todo tiempo y en todo lugar, oh Senor santisimo, Padre todopoderoso y eterno, porque por el misterio de la Encarnacion del Verbo se ha manifestado a los ojos de nuestra alma un nuevo resplandor de tu gloria, para que reconociendole por nuestro Dios, aunque revestido de una forma visible, seamos atraidos por el amor de las cosas invisibles. Y por tanto nos unimos con los Angeles, con los Arcangeles, con los Tronos, con las Dominaciones, y con todo el ejercito celestial, para cantar un himno a tu gloria, diciendo sin cesar: 
+Santo, Santo, etc.
+
+# PREFACIO DE PENTECOSTES
+
+que se dice desde la vispera de Pentecostes hasta el sabado siguiente, y en las misas del Espiritu Santo.
+
+Verdaderamente es digno y justo, equitativo y saludable, darte gracias en todo tiempo y en todo lugar, oh Senor santisimo, Padre todopoderoso y eterno Dios: por Jesucristo nuestro Senor, que subiendo a lo mas alto de los cielos, y estando sentado a tu diestra, derramo (en este dia) sobre los hijos de adopcion el Espiritu Santo, que habia prometido; por lo cual todos los que estan esparcidos por el orbe de la tierra se transportan de jubilo, mientras las Virtudes del cielo, y las Potestades angelicas cantan un cantico a tu gloria, diciendo sin cesar:
+Santo, Santo, etc.
+
+# PREFACIO DE LA SANTISIMA TRINIDAD
+
+que se dice en la misa de la Santisima Trinidad.
+
+Verdaderamente es digno y justo, equitativo y saludable, darte gracias en todo tiempo y en todo lugar, oh Senor santisimo, Padre todopoderoso y eterno Dios, que con tu unico Hijo, y con el Espiritu Santo, eres un solo Dios, y un solo Senor, no en una sola persona, sino en tres personas, de una misma substancia. Porque lo que tu nos has revelado de tu gloria, lo creemos tambien, sin diferencia alguna, de tu Hijo y del Espiritu Santo; de modo que, confesando una verdadera y eterna divinidad, adoramos la propiedad en las personas, la unidad en la esencia, y la igualdad en la Majestad. La que alaban los Angeles y los Arcangeles, tambien los Querubines y Serafines, que no cesan de cantar con voz unanime: Santo, Santo, etc.
+
+# CANON DE LA MISA.
+
+Suplicamoste con profundo respeto, _(besa el altar)_ oh Padre nuestro Senor Jesucristo tu Hijo, que recibas y bendigas estos dones, estas ofrendas, y estos santos y puros sacrificios los que te ofrecemos en primer lugar por tu santa Iglesia catolica, a la cual dignate dar la paz, conservarla, mantenerla en union y gobernarla en todo el orbe de la tierra, juntamente con tu siervo el Papa nuestro N., nuestro Prelado N. nuestro Rey N., y todos los ortodoxos que profesan la fe catolica y apostolica.
+
+# COMEMORACION POR LOS VIVOS
+
+Acuerdate, Senor, de tus siervos y siervas N. N.
+
+Aqui hace una pausa el Sacerdote, para encomendar a Dios a aquellos por quienes quiere pedir en particular, y despues prosigue diciendo: Y de todos los que estan aqui presentes, _cuya fe y devocion te son conocidas, por quienes te son conocidas, por quienes te ofrecemos o que te ofrecen este sacrificio de alabanza, por si y por todos los suyos, por la redencion de su alma, por la esperanza de su salvacion y conservacion, y tributan sus votos a ti, Dios eterno y verdadero.
+Participando de una misma comunion y venerando la memoria, en primer lugar, de la gloriosa siempre Virgen Maria madre de nuestro Dios, y Senor Jesucristo, y tambien la de tus bienaventurados apostoles y martires, Pedro y Pablo, Andres, Jaime, Juan, Tomas, Santiago, Felipe, Bartolome, Mateo, Simon y Tadeo: Lino, Cleto, Clemente, Sixto, Cornelio, Cipriano, Lorenzo, Crisogono, Juan y Pablo, Cosme y Damian, y de todos tus santos, por cuyos meritos y ruegos nos concedas que en todas nuestras cosas seamos fortalecidos con el auxilio de tu proteccion.
+
+Por el mismo Cristo nuestro Senor. Asi sea.
+
+Teniendo el Sacerdote las manos extendidas sobre la Hostia y el Caliz dice.
+
+Te suplicamos, pues, Senor, recibas propicio esta ofrenda de nuestra servidumbre, que es tambien la de toda tu familia, y hagas que gocemos de tu paz, durante esta vida: nos libres de la condenacion eterna, y nos cuentes en el numero de tus elegidos. Por Jesucristo nuestro Senor.
+Asi sea.
+
+La cual oblacion te suplicamos ! oh Dios ! te dignes hacerla en todo bendita dedicada y aprobada razonable y agradable a tus ojos, a fin de que se convierta para nosotros en cuerpo y sangre de Jesucristo, tu amadisimo Hijo nuestro Senor.
+
+Asi sea.
+La cual oblacion te suplicamos !oh Dios! te dignes hacerla en todo bendita dedicada y aprobada razonable y agradable a tus ojos, a fin de que se convierta para nosotros en cuerpo y sangre de Jesucristo, tu amadisimo Hijo nuestro Senor.
+
+# CONSAGRACION.
+
+El cual la vispera de su pasion tomo el Pan en sus venerables y sagradas manos, y levantando sus ojos al cielo, dandote gracias a ti, Dios, su Padre omnipotente, le bendijo, le partio y dio a sus discipulos, diciendo: Tomad y comed de el todos: porque este es mi cuerpo.
+
+Despues que el Sacerdote ha dicho estas palabras, adora de rodillas el Cuerpo de nuestro Senor Jesucristo, y luego lo eleva para que el pueblo lo adore.
+
+Del mismo modo despues de haber cenado, tomando tambien este excelente Calix en sus venerables y sagradas manos, dandote igualmente gracias le bendijo y dio a sus discipulos, diciendo: Tomad y bebed de el: _porque este es el Caliz de mi sangre, del nuevo y eterno Testamento _(Misterio de Fe), que sera derramada por vosotros, y por muchos, para la remision de los pecados._
+Todas las veces que hiciereis estas cosas, las hareis en memoria de mi.
+
+Y despues de haber adorado asimismo el Sacerdote la Sangre de nuestro Senor Jesucristo, eleva el Caliz para que lo adore el pueblo, y luego dice:
+
+Por tanto, Senor, haciendo memoria, nosotros, que somos tus siervos, _y aun tu santo pueblo,_ de la bienaventurada pasion del mismo Jesucristo tu Hijo nuestro Senor, y de su resurreccion de los infiernos, como tambien de su gloriosa ascension al cielo, ofrecemos a tu incomparable Majestad, de los dones que nos habeis dado, una Hostia pura, una Hostia santa, una Hostia sin mancha, el Pan santo de vida eterna y el Caliz de perpetua salvacion.
+
+Ahora pide el Sacerdote a Dios que reciba propiciamente la ofrenda de este Pan vivo y de este Caliz de bendicion, diciendo:
+
+Dignate, Senor, mirar este Pan de vida y este Caliz de salvacion con rostro propicio y sereno, y aceptalos, asi como aceptaste los dones del justo Abel tu siervo, y el sacrificio de nuestro patriarca Abraham y el que te ofrecio Melquisedec, tu sumo sacerdote; oficio santo; Hostia inmaculada.
+
+Despues hace una profunda reverencia para humillarse delante de Dios, y protestarle el fervor de su Oracion, diciendo:
+
+Te suplicamos humildisimamente, oh Dios todopoderoso, mandes que sean llevadas estas cosas hasta tu sublime altar en presencia de tu divina Majestad, por manos de tus santos, para que todos cuantos comulgando en este altar, recibieremos el Cuerpo y Sangre sacrosanta de tu Hijo, seamos llenos de todas las bendiciones y gracias del Cielo. Por el mismo Jesucristo nuestro Senor. Asi sea.
+
+# COMEMORACION POR LOS DIFUNTOS.
+
+Acuerdate tambien, Senor, de tus siervos y siervas N. y N., que nos han precedido con la senal de la fe, y duermen en el sueno de la paz.
+
+Aqui encomienda el Sacerdote a Dios los difuntos por quienes desea pedir en particular; y continua diciendo:
+
+Te suplicamos, Senor, les des por tu misericordia, a ellos y a todos los que descansan en Jesucristo, el lugar del refrigerio, de la luz y de la paz. Por el mismo Jesucristo nuestro Senor. Asi sea.
+
+Al decir las primeras palabras que siguen, se da un golpe en el pecho, levantando un poco la voz:
+
+A nosotros tambien pecadores, tus siervos, que esperamos en la muchedumbre de tus misericordias, dignate hacernos participantes y companeros de tus santos apostoles y martires, con Juan, Esteban, Matias, Bernabe, Ignacio, Alejandro, Marcelino, Pedro, Felicidad, Perpetua, Agueda, Lucia, Ines, Cecilia, Anastasia, y de todos tus santos en cuya compania te pedimos nos admitas, no por nuestros meritos sino por un efecto de vuestra clemencia.
+Por Jesucristo nuestro Senor Por quien, Senor, siempre produces todos estos bienes, los santificas, los vivificas, los bendices, y nos los das. Por el, con el, y en el, te pertenece todo honor y gloria, !oh, Dios, Padre todopoderoso! en unidad del Espiritu Santo.
+
+Pronunciadas estas ultimas palabras e leva un poco el Caliz con la Hostia, y despues de haber hecho genufleccion y cubierto el Caliz, dice en alta voz:
+
+V. Por todos los siglos de los siglos.
+R. Asi sea.
+
+_Oremos._ Instruidos por los preceptos saludables del Senor, y segun la forma de la instituicion divina que se nos ha ordenado, nos atrevemos a decir:
+Padre nuestro, que estas en los Cielos, santificado sea el tu nombre.
+Venga a nos el tu reino.
+Hagase tu voluntad asi en la tierra como en el Cielo.
+El pan nuestro de cada dia, danosle hoy. Y perdonanos nuestras deudas asi como nosotros perdonamos a nuestros deudores. Y no nos dejes caer en la tentacion.
+R. Mas libranos de mal.
+
+Responde el Sacerdote:
+
+Asi sea.
+
+Te rogamos, Senor, nos libres de todos los males pasados, presentes y futuros, y por la intercesion de la bienaventurada Virgen Maria madre de Dios, y de tus bienaventurados apostoles Pedro, Pablo y Andres, y de todos los santos, danos por tu bondad la paz en nuestros dias, para que asistidos del auxilio de tu misericordia, jamas seamos esclavos del pecado, y estemos siempre seguros de toda perturbacion. Por el mismo jesucristo nuestro Senor, que siendo Dios, vive y reina contigo, en unidad de Dios Espiritu Santo, por todos los siglos de los siglos. Asi sea.
+
+p. 104
