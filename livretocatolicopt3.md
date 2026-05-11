@@ -3,7 +3,7 @@ attachments: [Clipboard_2026-05-10-10-30-26.png]
 pinned: true
 title: livretocatolicopt3
 created: '2026-05-02T18:02:20.829Z'
-modified: '2026-05-10T15:08:38.458Z'
+modified: '2026-05-11T19:39:55.079Z'
 ---
 
 # livreto_catolico_pt3
@@ -263,3 +263,183 @@ Tomo a Israel bajo su amparo, acordandose de el, por su gran misericordia y bond
 Asi como lo habia prometido a nuestros padres, a Abraham y a toda su descendencia por los siglos de los siglos.
 Gloria al Padre, al Hijo, etc.
 
+# VISPERAS DE LA SANTISIMA VIRGEN
+
+Salmo 109 _Dixit Dominus_, pag. 119.
+Salmo 112 _Laudate pueri_, pag. 123.
+
+Salmo 121.
+
+Alegre estoy por lo que me han dicho: iremos a la casa del Senor.
+Nuestros pies se mantienen firmes: en vuestro atrio, oh Jerusalen.
+Jerusalen que va edificandose como una ciudad: cuyos habitantes estan en perfecta y mutua union.
+Porque alli subieron las tribus, tribus del Senor, testimonio a Israel para confesar en el nombre del Senor.
+Porque alli estaban colocados los tronos para juzgar: tronos sobre la casa de David.
+
+Demandad paz para Jerusalen, y abundancia para los que a ti te aman.
+Hagase la paz segun tu poder, y haya abundancia de defesa en tus torres.
+Por el amor a mis hermanos y parientes: yo he pedido mucho la paz para ti.
+Por la casa del Senor nuestro Dios, he procurado tu bien y acrecentamiento.
+
+Salmo 126.
+
+Si el Senor no edificara la casa, en vano trabajan los que la edifican.
+Si el Senor no guardare la ciudad, en vano vela el que la guarda.
+De poco os ha servido la madrugada: levantaos despues de descansar,
+vosotros los que comeis el pan de dolor.
+Cuando el Senor haya dado el sueno a sus amados: he aqui la herencia del Senor, los hijos, las riquezas y buenos sucessos.
+Cual es la saeta en brazos fuertes: asi los hijos de los que padecen tribulacion.
+Dichoso el hombre que gobernandose por ellos cumplio sus deseos: no se avergonzara cuando hable con sus enemigos a la puerta.
+
+Salmo 147.
+
+Alaba tu, oh Jerusalen, al Senor, alaba tu, oh Sion, a tu Dios.
+Porque reforzo los cerrojos de tus puertas: lleno tus hijos de bendiciones.
+El ha pacificado tus confines: de grossura del trigo te hara hartar.
+El da sus ordenes a la tierra: velozmente corre su palabra.
+
+Dando nieve como lana, derramando elada como ceniza.
+Echando su yelo como bocados de pan: ?quien podra sufrir el frio que trae?
+Dejara caer una palabra y derritira: soplara el viento de su espiritu y correran las aguas.
+El da nuevas de su palabra a Jacob: y de sus preceptos y juicios a Israel.
+No ha favorecido tanto a ninguna otra nacion: ni les ha manifestado sus juicios.
+
+# HIMNO DE SAN BERNARDO
+
+Salud, estrella del mar, y Virgen sempiterna, puerta feliz de los cielos.
+Tomando la salutacion de la boca de Gabriel, dad la paz a nuestra alma, mudando el nombre de Eva.
+Rompe las prisiones a los reos, comunica la luz a los ciegos, libranos, de nuestros males pediendo a Dios nuestra salud.
+Mostrate madre, y tu Hijo nacido para salvarnos, escuchara tus plegarias.
+Virgen excelentisima, dulcisima, purificanos de nuestras culpas, para ser apacibles y castos.
+Alcanzanos una vida pura y un camino seguro, para ver y alabar a Jesus con jubilo eterno.
+Sea el poder as Dios Padre honra a Cristo Jesus y al Espiritu Santo la misma gloria.
+Amen.
+
+# OFICIO DE LA SEMANA SANTA
+
+## DOMINGO DE RAMOS
+
+Acabada Tercia, y hecha la aspersion del agua bendita, el Sacerdote ira a bendecir los ramos de palmas o de olivo y de otros arboles, y canta el coro la Antifona:
+
+Hosanna al Hijo de David;
+bendito el que viene en nombre del Senor. !Oh Rey de Israel! Hosanna en las alturas.
+
+Despues, el Sacerdote dira:
+
+V. El Senor sea con vosotros.
+R. Y con tu espiritu.
+
+# ORACION
+
+Oh Dios, a quien es justo amar con todo el corazon, multiplica en nosotros los dones de tu inefable gracia: y pues en la muerte de tu Hijo nos hiciste esperar que creemos, haz que resucitando el mismo, lleguemos al fin para que caminamos. El cual contigo vive y reina un solo Dios con el Espiritu Santo por todos los siglos de los siglos.
+R. Amen.
+
+Despues, se canta en lugar de Gradual:
+
+R. Los Pontifices y los Fariseos juntaron concilio, y dijeron: ?Que hacemos? porque este hombre obra muchos milagros. Si lo dejamos asi, todos creeran en el: y vendran los Romanos y se apoderaran de nuestro pais y de nuestra nacion.
+V. Mas uno de ellos, llamado Caifas, como era pontifice en aquel ano, profetizo diciendo: Convieneos que un hombre muere por el pueblo, y no que toda la nacion perezca. Asi que desde aquel dia resolvieron darle muerte, diciendo: "Y vendran..."
+
+Despues de esto se bendicen los Ramos; el Sacerdote:
+
+V. El Senor sea con vosotros.
+R. Y con tu espiritu
+
+resucitando el mismo, lleguemos al fin para que caminamos. El cual contigo vive y reina un solo Dios con el Espiritu Santo por todos los siglos de los siglos.
+
+R. Amen.
+
+Despues, se canta en lugar de Gradual
+
+R. Los Pontifices y los Fariseos juntaron concilio, y dijeron: ?Que hacemos? porque este hombre obra muchos milagros. Si lo dejamos asi, todos creeran en el: y vendran los Romanos y se apoderaran de nuestro pais y de nuestra nacion.
+V. Mas uno de ellos, llamado Caifas, como era pontifice en aquel ano, profetizo diciendo: Convieneos que un hombre muere por el pueblo, y no que toda la nacion perezca. Asi que desde aquel dia resolvieron darle muerte, diciendo: "Y vendran..."
+
+Despues de esto se bendicen los Ramos;
+el Sacerdote:
+
+V. El Senor sea con vosotros.
+R. Y con tu espiritu
+
+# ORACION.
+
+Bendice, Senor, como te pedimos, estos ramos de palmas u olivos, estos ramos de palmas u olivos, y haz que lo que tu pueblo practica hoy exteriormente para gloria tuya, lo cumpla en lo interior con una muy encendida devocion, consiguiendo victoria del enemigo, y amando con todas veras las obras de misericordia. Por nuestro Senor.
+
+En llegando aqui, el Celebrante roclara tres veces los ramos con agua bendita, diciendo la antifona: _Asperges me._
+
+Rociame, oh Senor, con hisopo, y sere limpio; lavame, y quedare mas blanco que la nieve.
+V. El Senor sea con vosotros.
+R. Y con tu espiritu.
+
+# ORACION
+
+Oh Dios, que enviaste a este mundo tu Hijo Jesucristo, nuestro Senor, por nuestra salvacion, a fin de que humillandose el a nosotros, nos hiciese volver a ti; a cuyos pies tambien, para cumplimiento de las escrituras, al entrar en Jerusalen una gran muchedumbre de creyentes tendian con muy sincera devocion sus vestidos y ramos de palmas en el camino: concedenos que le preparemos el camino de la fe, en el cual, quitado el tropiezo y piedra de escandalo, florezcan ante tu acatamiento nuestras obras con ramos de justicia, para que merezcamos seguir sus pisadas. El cual, etc.
+
+Acabada la bendicion, el Celebrante distribuye los ramos: todos se arrodillan, y canta el coro las siguientes antifonas: _Pueri Hebraeorum, _ etc.
+
+Los ninos de los Hebreos salieron a recibir al Senor con ramos de olivo en las manos, clamando y diciendo: Hosanna en las alturas.
+Los ninos de los Hebreos tendian en el camino sus vestidos, y clamaban diciendo: Hosanna al Hijo de David: bendito el que viene en nombre del Senor.
+
+V. El Senor sea con vosotros.
+R. Y con tu espiritu.
+
+Hacese despues la procesion, y el Diacono dice:
+PROCEDAMOS EN PAZ. Y el coro responde: EN NOMBRE DE CRISTO. AMEN.
+Al volver la procesion, dos cantores entran en la iglesia, y cerrando la puerta, empieza el verso: Gloria, laus, y cantan los dos primeros versos. El Sacerdote, fuera de la Iglesia, los repite. Luego los que estan dentro cantan los versos que siguen, y los de fuera a cada dos versos responden: Gloria, laus, como en el principio.
+
+Gloria, alabanza y honor sea a ti, oh Rey y Redentor Jesucristo, a quien consagro pios loores la graciosa devocion de los ninos.
+Tu eres Rey de Israel e hijo esclarecido de David; bendito Rey, que vienes en nombre del Senor.
+R. Gloria, alabanza, etc.
+
+En las alturas te alaban todas las celestiales jerarquias; y en la tierra el hombre mortal con todas las demas criaturas.
+R. Gloria, alabanza, etc.
+La plebe hebrea te sale a recibir con palmas; y nosotros aqui nos presentamos a ti con ruegos, votos e himnos.
+R. Gloria, alabanza, etc.
+Aquellos te tributaban loores cuando ibas a padecer; nosotros te cantamos con dulces versos Rey inmortal.
+R. Gloria, alabanza, etc.
+Aquellos te agradaron; agradete tambien nuestra devocion, oh Rey bueno, Rey benigno, a quien todo lo bueno agrada.
+R. Gloria, alabanza, etc.
+
+Luego el Subdiacono da un golpe a la puerta con la cruz, y al instante se abre y entra la procesion en la Iglesia cantando:
+
+Al entrar el Senor en la santa ciudad, los ninos de los Hebreos, anunciando la resurreccion de la vida, con ramos de palma clamaban: Hosanna en las alturas.
+V. Habiendo odio el pueblo que venia Jesus a Jerusalen, le salieron a recibir con ramos de palma, etc.
+
+Luego empieza la misa: todos tendran los ramos en sus manos mientras se canta la Pasion y el Evangelio solamente.
+
+# INTROITO.
+
+Senor, no alejes de mi tu auxilio, atiende a mi defensa: libradme de la boca del leon y de los cuernos de los unicornios a mi humildad.
+V. Oh Dios, oh mi Dios, mira por mi: ?por que me has desamparado? Lejos estan de mi salvacion los clamores de mis delitos.
+
+_Repliese: Senor, no alejes de mi, etc.
+
+# ORACION.
+
+OMNIPOTENTE y eterno Dios, que por dar a los hombres un vivo ejemplo de humildad, ordenaste que se vistiese nuestro Salvador de nuestra carne, y padeciese muerte de cruz: concedenos benignamente que nos aprovechemos del dechado de su paciencia y merezcamos participar la gloria de su resurreccion. Por, etc.
+
+# Leccion de la Epistola de san Pablo apostol a los Filipenses.
+
+Hermanos: hay en vosotros los mismo afectos que sintio en si Cristo Jesus, el cual teniendo la naturaleza de Dios, no tuvo por usurpacion el ser igual a Dios, mas se anonado a si mismo, tomando la forma de siervo, hecho semejante a los hombres, y reconocido como hombre en la condicion. Humillose a si mismo hecho obediente hasta la muerte y muerte de cruz. Por lo cual Dios tambien le exalto, y le dio nombre que es sobre todo nombre para que al nombre _(se hincan de rodillas)_ de Jesus se doble toda rodilla de lo celestial, de lo terreno y de lo infernal, y todas las lenguas confiesen que el Senor Jesucristo esta en la gloria de Dios Padre.
+
+# GRADUAL.
+
+Tomaste mi mano derecha, y me guiast2 segun tu voluntad, y con gloria me sublimaste.
+V. !Cuan bueno es el Dios de Israel para los rectos de corazon!
+Casi se movieron mis pies, y poco falto para que mis pasos se derramasen, porque envidie a los pecadores, viendo la paz de ellos.
+Oh Dios, oh mi Dios, mira por mi, ?por que me has desamparado?
+V. Lejos estan de mi salvacion los clamores de mis delitos.
+V. Oh Dios mio, de dia clamare, y no me oiras, y de noche, y no por necedad mia.
+V. Tu, oh gloria de Israel, tienes su morada en el santuario.
+En ti esperaron nuestros padres; esperaron, y los libraste. A ti clamaron, y fueron hechos salvos: esperaron en ti, y no fueron confundidos.
+V. Mas yo soy gusano y no hombre; oprobio de los hombres y desecho de la plebe.
+V. Todos los que me vian me escarnecian; hablaron con sus labios y menearon la cabeza.
+V. Espero en el Senor, pues librelo el; salvelo, pues lo ama.
+V. Ellos empero me observaron, me miraron; partieron entre si mis vestidos, y sobre mi tunica echaron suertes.
+V. Librame de la boca del leon y de los cuernos de los unicornios a mi humildad.
+Los que temeis al Senor, loadlo; hijos de Jacob, engrandecedlo todos.
+V. Al Senor pertencera el pueblo que ha de venir, y los cielos anunciaran su justicia al pueblo que ha de nacer, el cual es obra del Senor.
+
+# PASION DE NUESTRO SENOR JESUCRISTO
+
+segun San Mateo.
+
+En aquel tiempo dijo Jesus a sus discipulos: Sabeis que despues de dos dias se celebrara la Pascua, y el Hijo del Hombre sera entregado para ser crucificado. A. Al mismo tiempo los principes de los sacerdotes y los ancianos del pueblo se congregaron en el palacio del principe de los sacerdotes, que se llamaba Caifas, y tuvieron consejo para prender con engano a Jesus en Betania, en casa de Simon el leproso, se llego a el una mujer con un vaso de alabastro, lleno de unguento muy precioso, y le derramo sobre su cabeza, estando puesto a la mesa; lo que viendo sus discipulos se indignaron contra ella, y dijeron: S. ?A que fin este desperdicio? Pues podia haberse vendido este unguento a muy gran precio y darse a los pobres. C. Mas entendiendolo Jesus, les dijo: ?Por que molestais a esta mujer? lo que acaba de hacer conmigo es una buena obra; por que siempre teneis a los pobres con vosotros, mas a mi no siempre me tendreis; porque el derramar ella este unguento sobre mi cuerpo, fue ungirme para ser enterrado. De cierto os digo: que donde quiera que fuere predicado este Evangelio por todo el mundo se contara tambien en alabanza de esta mujer lo que acaba de hacer. C. Entonces uno de los doce, llamado Judas Iscariote, fue a buscar a los principes de los sacerdotes, y les dijo S. ?Que me quereis dar, y yo os lo pondre en las manos? C. Y ellos quedaron de acuerdo en darle treinta siclos. Y desde entonces buscaba ocasion oportuna para entregarle. El primer dia de los Azimos se llegaron los discipulos a Jesus, y le dijeron: S. ?En donde quieres que te preparemos lo necesario para comer la Pascua? C. Y Jesus les respondio: ?Id a la ciudad a casa de cierta persona, y decidle: el Maestro dice: Mi tiempo se acerca. En tu casa he de celebrar la Pascua con mis discipulos. C. Y los discipulos hicieron lo que Jesus les habia ordenado, y prepararon la Pascua; y llegada la tarde se puso a la mesa con sus doce discipulos. Y cuando estaban comiendo, les dijo: De cierto os digo, que uno de vosotros me ha de vender. C. Lo cual les causo una suma tristeza, y cada uno de ellos comenzo a decirle: S. ?Soy yo acaso, Senor? Y el les respondio: El que mete la mano conmigo en el plato, ese es el que me ha de vender. A la verdad el Hijo del hombre se va, como esta escrito de el; mas !ay de aquel hombre por quien el Hijo del hombre sera entregado! Mejor le fuero a este tal no haber nacida. C. Entonces Judas, el que le vendio, dijo: S. ?Soy, yo por ventura, Maestro? C. El le respondio: Tu lo has dicho. C. Y mientras estaban cenando, tomo Jesus el pan, y bendiciendole lo partio

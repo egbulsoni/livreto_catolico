@@ -2,7 +2,7 @@
 pinned: true
 title: livretocatolicopt1
 created: '2026-04-12T22:27:45.179Z'
-modified: '2026-04-30T16:41:16.500Z'
+modified: '2026-05-10T12:32:26.477Z'
 ---
 
 # livreto_catolico_pt1
