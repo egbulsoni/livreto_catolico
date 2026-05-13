@@ -2,7 +2,7 @@
 pinned: true
 title: livretocatolicopt4
 created: '2026-05-11T18:59:39.130Z'
-modified: '2026-05-13T15:10:58.065Z'
+modified: '2026-05-13T17:18:35.067Z'
 ---
 
 # livretocatolicopt4
@@ -115,3 +115,92 @@ _Ofertorio_. La diestra del Senor me exalto, no morire, mas vivire y cantare las
 _Secreta_. Concedenos, como te rogamos, oh Senor santo, Padre omnipotente, eterno Dios, que te sea aceptable nuestro sacrificio por Jesucristo tu Hijo, nuestro Senor, el cual mostro con el hecho de este dia a sus discipulos, que esto se hace en memoria de el. Que contigo vive, etc.
 
 Prefacio de la Santa Cruz y _Sanctus_ como en el Domingo de Ramos, pag. 161.
+
+_Comuni'on_. El Senor Jesus, despues que ceno con sus discipulos, les lavo los pies y les dijo: ?Entendeis lo que he hecho con vosotros, yo que soy vuestro Se~nor y Maestro? Ejemplo os he dado para que asi lo hagais vosotros tambien.
+V. El Senor sea con vosotros.
+R). Y tambien con tu espiritu.
+_Postcomuni'on_. Fortalecidos ya con este alimento que da vida, te rogamos, Senor Dios nuestro, que nos des por el don de inmortalidad lo que celebramos en el tiempo de la vida mortal. Por nuestro Senor, etc.
+
+Se dice: _Ite missa est_, se da la bendicion, y se lee el Evangelio de San Juan, y al comenzarle no persigna el Sacerdote al altar, sino sobre si mismo.
+Acabada la misa, lleva en procesion el Santisimo Sacramento para encerrarle en el Monumento, cantando el Pange, lingua.
+
+# TINIEBLAS
+
+PARA EL MIERCOLES, JUEVES Y VIERNES SANTO.
+
+Las Tinieblas se componen de diferentes salmos cuyo sentido esta solo al alcance de los eclesiasticos; por lo mismo aqui solo ponemos lo principal, pudiendo leerse entretanto la Pasion que se halla en la pagina 144, siguen las maximas de los Santos Padres, ganando muchas indulgencias.
+Luego de apagadas todas las velas del Tenebrario, menos la ultima, se dice:
+
+## AL BENEDICTUS
+
+# ANTIFONA.
+
+Mas el traidor les dio esta sena, diciendo: Al que yo besare, el es; prendedlo.
+
+CANTICO DE ZACARIAS.
+
+Bendito sea el Senor, Dios de Israel: * porque visito y redimio a su pueblo.
+Y nos suscito un Salvador poderoso, * en la casa de David su siervo.
+Segun prometio por boca de sus santos Profetas, * que fueron en los siglos pasados:
+Que nos libraria de nuestros enemigos, * y de las manos de cuantos nos aborrecen.
+Para usar de misericordia con nuestros padres, * acordandose de su santa alianza.
+Y del juramento que hizo a Abraham nuestro padre, * que nos haria esta gracia,
+Para que, libres de las manos de nuestros enemigos, * le sirvamos sin temor,
+En santidad y justicia delante de el, * toda nuestra vida.
+Y tu, o Nino, seras llamado Profeta del Altisimo: * pues iras delante del Se~nor a preparar sus caminos.
+Para ensenar a su pueblo la ciencia de la salud: * en remision de sus pecados.
+Por las entra~nas de misericordia de nuestro Dios: * con que el Oriente vino de lo alto a visitarnos.
+Para alumbrar a los que estaban sentados en tinieblas y sombra de muerte: * y dirigir nuestros pasos por el camino de la paz.
+
+# ANTIFONA.
+
+Mas el traidor les dio esta se~na, diciendo: Al que yo besare, el es; prendedlo.
+
+Se apagan todas las velas y luces de las l'amparas.
+
+V. Cristo se hizo obediente por nosotros hasta la muerte.
+
+En la segunda noche se a~nade
+
+R. Y muerte de cruz.
+
+En la tercera noche se a~nade:
+
+R. Y por esta tambien Dios lo exalte, y le dio un nombre que es sobre todo nombre.
+
+Asi se dice tambien a todas las horas del dia. Cuando se dice el versiculo _Cristo se hizo obediente_, todos se arrodillan: concluido, se dice _Padre nuestro_ secretamente, y luego el siguiente salmo, para pedir a Dios misericordia y el perdon de nuestros pecados.
+
+# Salmo 109. Vease pag. 119
+
+# ANTIFONA.
+
+Se~nor, conozcante justo en tus palabras, y venzas cuando juzgasen de ti.
+
+# OTRA.
+
+Fu'e llevado el Senor como oveja a la victima, y no abrio su boca.
+
+Se hace un poco de ruido, se saca de debajo del altar la vela encendida, y todos se levantam y se van en silencio.
+
+# SIETE MEDITACIONES PARA VISITAR LOS MONUMENTOS
+
+PREPARACION.
+
+OH! Dios y Senor mio! postrado y humillado ante vuestra divina presencia, conozco mi vileza y ningun merito para acercarme a Vos, y contemplar los sucesos y maravillas de vuestra vida mortal, y los prodigios estraordinarios de vuestro infinito poder. Confiado en vuestra bondad, espero que me concedais verdadero espiritu de respeto y veneracion con que pueda adoraros como mereceis, y un singular reconocimiento del apreciable beneficio de vuestra sagrada pasion y muerte. Dignaos, Senor, aceptar mis deseos: dadme un corazon afectuoso, una devocion sincera para que pueda meditar en cada estacion aquellos dolores y trabajos mas acerbos de los ultimos dias de vuestra vida mortal.
+
+Sean estas visitas o meditaciones recuerdos perpetuos que sirvan norma para arreglar mi vida, conformandola en un todo con la vuestra, Senor, a quien siempre mirare como modelo y ejemplar de mis acciones y palabras.
+Con vuestra ayuda y gracia, Se~nor comenzare la
+
+# PRIMERA ESTACION.
+
+OH Divino Jesus! sabiendo que estaba proxima la hora de dar principio a vuestra dolorosa pasion, con el mayor afecto os despedis de vuestra santisima Madre y discipulos, y dirigis vuestros pasos al Monte de los Olivos.
+Este fue el lugar se~nalado donde empezasteis a padecer: sudores mortales, tristeza suma 'e inexplicable angustia se apoderaron de vuestro corazon en aquellos momentos supremos, sin quedaros otro confortativo que vuestro inmenso amor a los hombres, para poder desahogar resignadamente en el seno de vuestro Eterno Padre vuestra acerba afliccion, diciendole: Padre mio; pase de mi este caliz tan amargo, pero no se haga mi voluntad, sino la tuya. !Oh! como sucumbierais de dolor, si un angel del cielo no bajara a confortar vuestro espiritu. Oh Salvador mio, yo os adoro y espero que si alguna vez en la oracion y la meditacion se apoderan de mi alma el miedo y la tristeza, por ver cercanos los peligros y borrascas de esta vida; si tal es mi abatimiento y desconsuelo, que embarguen las potencias de mi alma, a ejemplo vuestro, pedire al Senor, que levante y vivifique mi espiritu para que pueda caminar con seguridad y firmeza por la senda de los trabajos, y hacerme acreedor a los premios eternos. Amen.
+
+Tres _Padre nuestros_ y _Ave Marias_ y un _Gloria Patri_.
+
+# SEGUNDA ESTACION.
+
+Oh adorable Jesus! !cual seria vuestra afliccion cuando veiais que se acercaba la hora de caer en poder de vuestros enemigos!
+El ingrato, el desnaturalizado Judas, a quien eligisteis por uno de vuestros discipulos, ha concertado vuestra prision. Al frente de una vil soldadesca se adelanta para daros un beso, se~na que ha dado el traidor para prenderos.
+Cual facineroso os llevan maniatado ante los tribunales de Anas y Caifas. Los deprecios e injurias que en ellos sufristeis, ?quien podra numerarlos? Y nadie se acuerda de los beneficios, de las innumerables gracias, que vuestra bondad y clemencia dispenso a toda clase de personas; y a los vitores y aclamaciones se han convertido en blasfemias y furor.
+Solo vuestra paciencia y resignacion, oh Jesus mio, podia tolerar semejantes insultos, pero !ah! la idea de mis culpas atormenta mi imaginacion, ellas han renovado cien veces durante mi culpada vida los dolores de vuestra sagrada pasion, siguiendo los ejemplos de Judas, abandonandoos y haciendoos traicion por un vil interes, o por humanos respetos. Lo confieso y deploro, [p.180]
