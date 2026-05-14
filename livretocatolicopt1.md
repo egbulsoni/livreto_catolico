@@ -229,7 +229,8 @@ Siempre que se vea alguna imagen de la Virgen Santisima, se dira:
 
 Dios te salve, Hija de Dios Padre: Dios te salve, Madre de Dios Hijo: Dios te salve, Esposa del Espiritu Santo: Dios te salve, Maria Santisima, concebida sin mancha de pecado original.
 
-**Imagen de Jesus crucificado**
+
+![Imagen de Jesus crucificado](./jesus_crucificado.jpg)
 
 # ORACIONES PARA LA CONFESION
 

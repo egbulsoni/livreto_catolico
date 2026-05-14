@@ -1,14 +1,4 @@
-# livreto_catolico
-um livro antigo de minha avó materna.
-
----
-pinned: true
-title: DESCRICAO DO LIVRETO CATOLICO
-created: '2026-05-11T19:09:57.772Z'
-modified: '2026-05-12T22:29:03.172Z'
----
-
-# DESCRICAO DO LIVRETO CATOLICO
+# README
 
 LARGURA: cerca de 8 CENTIMETROS
 ALTURA: cerca de 14,8 CENTIMETROS
@@ -37,33 +27,38 @@ Problemas:
 
 FAQ:
 
-1. Por que voce transcreveu essa bodega?
+1. Como isso foi feito??
+R. Pra nao dizer que foi inteiramente por uma unica pessoa, escrito tudo digitado, linha por linha, pagina por pagina, eu vou apenas conceder que, em alguns momentos, tive que utilizar o ctrl+c e ctrl+v.
+inb4: "ah, mas eu duvido"
+eu nao preciso te provar nada. Duvida? vai la inspecionar os metadados, eu escrevi isso na mao sim, na era da IA sim.
+
+2. Por que voce transcreveu essa bodega?
 R. Medo de deixar minha cultura morrer ficando de bra'cos cruzados.
 
-2. Voce fez um repo com 3 linguagens: Espanol, Ingles e Portugues, por que??
+3. Voce fez um repo com 3 linguagens: Espanol, Ingles e Portugues, por que??
 R. Porque eu posso, deal with it! nao gostou?? faz o teu livro, faz o teu repo, forka e muda, escafeda-te.
 
-3. Voce eh cristao?
+4. Voce eh cristao?
 R. Sim, mas tambem sou meio pagao.
 
-4. Preciso do livro pra corrigir alguma parte, vc pode me mandar foto?
+5. Preciso do livro pra corrigir alguma parte, vc pode me mandar foto?
 R. Claro, meu confrade, so que eh o seguinte: vai com calma, pq eu sou maquina lenta, haushuashuhausuahsuh, tipo, nao me pede o livro todo de uma vez, me pede algumas paginas especificas em algum dia, eventualmente a gente consegue arrumar tudo.
 
-5. Voce cometeu erros bizarros de espa'camento, formata'c~ao, e ate de digita'c~ao, sabe disso, ne?
+6. Voce cometeu erros bizarros de espa'camento, formata'c~ao, e ate de digita'c~ao, sabe disso, ne?
 R. Sim, perdao por tudo isso, sei que a biblia bem diz que "nem uma virgula, nem um til passarao em vao, ate que chegue o fim/consuma'c~ao dos tempos" ou coisa assim, pois eh, eu sou humano, eu erro, eu tenho problemas como qualquer um, nao sou jesuita, monge, nem nada disso, ao menos nao acho que sou.
 
-6. Tenho outras perguntas! onde te encontrar?
+7. Tenho outras perguntas! onde te encontrar?
 pode me mandar um zap, ou email, ou chama no discord, sei la, velho, eu nem garanto que vou responder, pra ser bem sincero, de uns tempos pra ca eu desativei uma penca de coisas, pq eh chato pra caramba virar refem dum celular.
 
-7. Que dia vc escreveu essa parada toda?
+8. Que dia vc escreveu essa parada toda?
 R. Bem, sou um cara ruim de me situar no tempo, mas devo-lhe dizer que, no momento em que escrevo essa bodega aqui que tu ta lendo, estamos no dia 13 de maio de 2026, as 19:49 de la noche, ?perfecto? o no? enfim, escrevi ate mais ou menos a pagina 194, em breve as 220 paginas terao sido totalmente copiadas.
 
-8. Poxa, mas vc botou o teu pix, nao colocou uma licen'ca nesse repo, subiu tudo na branch main, fez tudo meio esculhambado?
+9. Poxa, mas vc botou o teu pix, nao colocou uma licen'ca nesse repo, subiu tudo na branch main, fez tudo meio esculhambado?
 R. Eh isso ai mesmo, nao gostou, pode cair fora.
 Desculpa a sinceridade, mas eh o que eu tenho pra hoje, eu olho pro git e eu vejo um sistema de armazenamento em nuvem, nao um sistema de controle de versao, pois eh, me falta conhecimento.
 alias, que licen'ca que eu ponho num livro que nem fui eu que tirei da cabe'ca?? eu nao sei, velho.
 
-9. Voce quer que eu te contate pra contribuir? posso subir no seu git? podemos conversar? vai ter versoes mais atualizadas desse livro?
+10. Voce quer que eu te contate pra contribuir? posso subir no seu git? podemos conversar? vai ter versoes mais atualizadas desse livro?
 
 R. Vou ser bem curto e grosso... n~ao vou ajudar tanto, mas tambem nao vou fazer a tua cabe'ca: achou que vale a pena, contribui, senao, cai fora.
 
